@@ -1,0 +1,58 @@
+# Different Heaven – Safe & Sound
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Fill me up
+With your smile
+Like the sunshine brings the
+light
+Fill me up
+With a flame
+I will let you win this game
+Take me up when I'm down
+Cause with you I'm safe and
+sound
+I'm safe and sound
+I'm safe and sound
+I'm safe and sound
+I'm safe and sound
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+Bring, bring, bring that beat
+back!
+Ooh yes!
+Fill me up
+With your smile
+Like the sunshine brings the
+light
+Fill me up
+With a flame
+I will let you win this game
+Take me up when I'm down
+Cause with you I'm safe and
+sound
+I'm safe and sound
+I'm safe and sound
+I'm safe and sound
+I'm safe and sound
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+Bring, bring, bring, bring that
+beat!
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+(I'm safe and sound)
+```
